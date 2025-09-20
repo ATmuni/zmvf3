@@ -1,0 +1,1 @@
+Zmvf vypracované príklady.
